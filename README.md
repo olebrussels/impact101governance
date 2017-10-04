@@ -1,8 +1,10 @@
 # impact101governance
 
+Which organisation?
 
+How decisions are taken
 
-testing sync 
+Regulation. Conflict management
 
-
+How can people get involved
 
